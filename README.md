@@ -1,0 +1,1 @@
+# secript-heck-FECBOOK-TANPA-CEKPOINT
